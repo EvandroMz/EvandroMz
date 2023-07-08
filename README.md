@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do EvandroMZ 😁
+## Bem-vindo(a) ao perfil do EvandroMZ 😎
 
  <div>
    <a href="https://github.com/EvandroMz">
